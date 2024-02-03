@@ -1,4 +1,4 @@
 ### Hi there 👋
-this is Tanisha Rane
+This is Tanisha Rane
 <br>
 author-myself
